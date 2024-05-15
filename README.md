@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jakev41 or Jacob 
 - 👀 I’m interested in Anime, manga, video games 
-- 🌱 I’m currently learning as many languages as I can, currently I speak 1
+- 🌱 I’m currently learning as many languages as I can, currently I speak 1, it's not going well...
 - 💞️ I’m looking to collaborate on building my anime group and community 
 - 📫 find me at jakev41 on all the socials or tags
 - 😄 Pronouns: he and him and it
